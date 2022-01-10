@@ -15,7 +15,7 @@ https://user-images.githubusercontent.com/65974766/148834132-1f02d31b-1f8e-4303-
 
 </br>
 
-Second Video - Aimtrainer (;-) enable sound to enjoy the music!)
+Second Video - Aimtrainer ( 🎷 enable sound to enjoy the music 🎧!)
  
 </br>
 
