@@ -2,7 +2,7 @@
 
 </br>
 
-This is a bot that <strong> displays high reaction speed </strong> in aiming games
+This is a bot that  displays <strong> high reaction speed and accuracy </strong> in aiming games
 
 </br>
 
